@@ -1,1 +1,1 @@
-- `:beetle:` Hi, I’m @bugmenut
+- 🪲 Hi, I’m @bugmenut
